@@ -13,3 +13,14 @@
 * economy is **21.reeling**倒退 ／ how the trip playing back home / **22.layover**短暂停留 ／ **23.pundit:someone who has been admitted to membership in a scholarly field**专家
 * **24.decrying:express strong disapproval of** / **25.dumbfounded**目瞪口呆 ／ racist **26.rhetoric**话语 ／ **27.rail against**责骂 / **28.appease(make peace with)Trump** 平息 
 * **29.make jabs about**挑刺 ／ **30.anticipated**预料 public handshake and photo-op媒体拍照 / 
+
+### July 9,2020 | +21
+>A. The CDC will revise the guidelines for school reopening after Trump's criticism.
+* a **1.rationale**理由 to keep schools closed ／ distance learning / hybrid scheduling / abiding by President wishes / **2.emerging**coming into view evidence 
+* space and **3.stuffing** / really caught in the middle进退两难 ／ has really ever **4.contemplated**设想的 doing ／ unsupported / it's going to be a **5.fiasco**a sudden and violent collapse /
+* forcefully / **6.in the works**正在计划之中 ／ **7.go out on a limb**担风险 for schools with opening ／ 
+>B. How Sanders and Biden want to unify Democrats.
+* heading into the Democratic National Convention / spoke to NPR / **8.onboard**支持 ／ **9.zero out** 取消 ／ **10.task forces**工作小组 ／ a dividing line, Medicare for all 
+* **11.drawn out**冗长的 ／ **12.billing**开支票 it ／ 
+>C. The Supreme Court will rule on Trump's tax records.
+* a **13.high-profile**引入注目的 decision ／ **14.pertaining to**someone 关于某人 ／ **15.grand jury**陪审团 ／ **16.voluntarily release** / possible **17.wrongdoing** /  no one is above the law / **18.subpoena**传票 ／ at a minimum / **19.money laundering**洗钱 ／ widely **20.discredited** / **21.sides with**支持 ／ 
