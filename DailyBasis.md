@@ -24,3 +24,12 @@
 * **11.drawn out**冗长的 ／ **12.billing**开支票 it ／ 
 >C. The Supreme Court will rule on Trump's tax records.
 * a **13.high-profile**引入注目的 decision ／ **14.pertaining to**someone 关于某人 ／ **15.grand jury**陪审团 ／ **16.voluntarily release** / possible **17.wrongdoing** /  no one is above the law / **18.subpoena**传票 ／ at a minimum / **19.money laundering**洗钱 ／ widely **20.discredited** / **21.sides with**支持 ／ 
+
+### July 12,2020 | +10
+>A. A Look at HK's Future After China Passes Controversial Law
+* a **1.sweeping**意义深远的 new law ／ **2.safeguarding** HK / life sentences / collude with foreign powers / **3.seek asylum**寻求避难 ／ push back this tide / 
+>B. June Job Increase Threatened By Recent COVID-19 Surge
+* **lead the way to a 4.spike**使之通行coronavirus cases across the country /  nation **5.wrestles with**搏斗 all of these new infections / worrisome / is a snapshot of the job market 
+* **6.nix**取消 plans for indoor restaurant dining / in jeopardy / **7.bungling his own job**搞砸 ／ hard-hit / **8.prop up**支持 ／ 
+>C. Why some young people fear social isolation more than covid-19
+* thoughts would **9.race about** my friends / **10.buffer**缓冲 them 
