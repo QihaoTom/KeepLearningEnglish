@@ -33,3 +33,16 @@
 * **6.nix**取消 plans for indoor restaurant dining / in jeopardy / **7.bungling his own job**搞砸 ／ hard-hit / **8.prop up**支持 ／ 
 >C. Why some young people fear social isolation more than covid-19
 * thoughts would **9.race about** my friends / **10.buffer**缓冲 them 
+
+### July 22, 2020 | 
+>A. What to do with toppled statues? Russsia has a fallen monument park
+* **topple** / a **flatbed** truck / in **conspicuous**: obvious sites / an **omnipotent**: having unlimited power force 
+* on his **pedestal**:基座 / **reckon with**:deal with
+
+>B. President Trump threatens to deploy federal **law enforcement** to more U.S. cities. The race for COVID-19 vaccines **shows promise**. And, Florida teachers sue to stop school reopenings amid pandemic.
+* **camouflage**伪装 / at the white house / is a mess / **empty promises** / **human trafficking**贩卖人口 / have been **vague** about it / any **definitive**:详尽的 plans / **snatch** protesters off the streets / detain
+* in his **rhetoric** / using someone as **a punching bag** 出气筒 / **craft** a law-and-order message / **skepticism**
+* any **insignia**徽章 / **tyranny**暴政 / 
+* might be getting closer to an answer / **lay the groundwork**奠定基础
+
+
