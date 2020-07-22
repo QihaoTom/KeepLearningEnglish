@@ -39,10 +39,20 @@
 * **topple** / a **flatbed** truck / in **conspicuous**: obvious sites / an **omnipotent**: having unlimited power force 
 * on his **pedestal**:基座 / **reckon with**:deal with
 
->B. President Trump threatens to deploy federal **law enforcement** to more U.S. cities. The race for COVID-19 vaccines **shows promise**. And, Florida teachers sue to stop school reopenings amid pandemic.
+>B. President Trump threatens to deploy federal **law enforcement** to more U.S. cities.
 * **camouflage**伪装 / at the white house / is a mess / **empty promises** / **human trafficking**贩卖人口 / have been **vague** about it / any **definitive**:详尽的 plans / **snatch** protesters off the streets / detain
 * in his **rhetoric** / using someone as **a punching bag** 出气筒 / **craft** a law-and-order message / **skepticism**
 * any **insignia**徽章 / **tyranny**暴政 / 
-* might be getting closer to an answer / **lay the groundwork**奠定基础
 
+>C. The race for COVID-19 vaccines **shows promise**. 
+* might be getting closer to an answer / **lay the groundwork**奠定基础 / the second **is out of** the Univeristy of Oxford
+* **adverse event** / a fever, a **fatigue** at the site of the injection / don't know anything **definitively** yet / 
+experimental injections / **neutralize**中和 the virus / **rev up to**加速 produce / **critically** important / **longevity** of the immunoresponse / **fleeting**:转瞬即逝的 immune response to related coronavirus / wouldn't **stick** /
+* they are **ahead of the pack**保持领先 / new scientific **territory** / potential vaccine candidate **falter**衰减 
+* the potential **snags**障碍 / in the mass production of the vaccine / **team up**合作 / **ramp up** production提升产能
+* **cast a wide net**海王
+
+>D. And, Florida teachers sue to stop school reopenings amid pandemic.
+* as a **shining** example / **reckless**不计后果的 / **vulnerable** student / focus on the best interests of our students / 
+* **plaintiff**原告 / **backpedal**:后退 / 
 
