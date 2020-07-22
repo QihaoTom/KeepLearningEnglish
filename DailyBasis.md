@@ -34,7 +34,7 @@
 >C. Why some young people fear social isolation more than covid-19
 * thoughts would **9.race about** my friends / **10.buffer**缓冲 them 
 
-### July 22, 2020 | 
+### July 22, 2020 | +43
 >A. What to do with toppled statues? Russsia has a fallen monument park
 * **1.topple** / a **2.flatbed** truck / in **3.conspicuous**: obvious sites / an **4.omnipotent**: having unlimited power force 
 * on his **5.pedestal**:基座 / **6.reckon with**:deal with
