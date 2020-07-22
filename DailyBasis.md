@@ -1,4 +1,4 @@
-# Learning English from NPR News， morning edition
+# Learning English from NPR News，Morning Edition
 ### July 8.2020 | +30 vocabulary
 > A. The Trump adminsitration is taking action this week that will affect students from kindergarten all the way through graduate school
 * **is 1.revoking (*recalling or rescinding*) visas** for international students
@@ -36,23 +36,23 @@
 
 ### July 22, 2020 | 
 >A. What to do with toppled statues? Russsia has a fallen monument park
-* **topple** / a **flatbed** truck / in **conspicuous**: obvious sites / an **omnipotent**: having unlimited power force 
-* on his **pedestal**:基座 / **reckon with**:deal with
+* **1.topple** / a **2.flatbed** truck / in **3.conspicuous**: obvious sites / an **4.omnipotent**: having unlimited power force 
+* on his **5.pedestal**:基座 / **6.reckon with**:deal with
 
->B. President Trump threatens to deploy federal **law enforcement** to more U.S. cities.
-* **camouflage**伪装 / at the white house / is a mess / **empty promises** / **human trafficking**贩卖人口 / have been **vague** about it / any **definitive**:详尽的 plans / **snatch** protesters off the streets / detain
-* in his **rhetoric** / using someone as **a punching bag** 出气筒 / **craft** a law-and-order message / **skepticism**
-* any **insignia**徽章 / **tyranny**暴政 / 
+>B. President Trump threatens to deploy federal **7.law enforcement** to more U.S. cities.
+* **8.camouflage**伪装 / at the white house / is a mess / **9.empty promises** / **10.human trafficking**贩卖人口 / have been **11.vague** about it / any **12.definitive**:详尽的 plans / **13.snatch** protesters off the streets / detain
+* in his **14.rhetoric** / using someone as **15.a punching bag** 出气筒 / **16.craft** a law-and-order message / **17.skepticism**
+* any **18.insignia**徽章 / **19.tyranny**暴政 / 
 
->C. The race for COVID-19 vaccines **shows promise**. 
-* might be getting closer to an answer / **lay the groundwork**奠定基础 / the second **is out of** the Univeristy of Oxford
-* **adverse event** / a fever, a **fatigue** at the site of the injection / don't know anything **definitively** yet / 
-experimental injections / **neutralize**中和 the virus / **rev up to**加速 produce / **critically** important / **longevity** of the immunoresponse / **fleeting**:转瞬即逝的 immune response to related coronavirus / wouldn't **stick** /
-* they are **ahead of the pack**保持领先 / new scientific **territory** / potential vaccine candidate **falter**衰减 
-* the potential **snags**障碍 / in the mass production of the vaccine / **team up**合作 / **ramp up** production提升产能
-* **cast a wide net**海王
+>C. The race for COVID-19 vaccines **20.shows promise**. 
+* might be getting closer to an answer / **21.lay the groundwork**奠定基础 / the second **22.is out of** the Univeristy of Oxford
+* **23.adverse event** / a fever, a **24.fatigue** at the site of the injection / don't know anything **25.definitively** yet / 
+experimental injections / **26.neutralize**中和 the virus / **27.rev up to**加速 produce / **28.critically** important / **29.longevity** of the immunoresponse / **30.fleeting**:转瞬即逝的 immune response to related coronavirus / wouldn't **31.stick** /
+* they are **32.ahead of the pack**保持领先 / new scientific **33.territory** / potential vaccine candidate **34.falter**衰减 
+* the potential **35.snags**障碍 / in the mass production of the vaccine / **36.team up**合作 / **37.ramp up** production提升产能
+* **38.cast a wide net**海王
 
 >D. And, Florida teachers sue to stop school reopenings amid pandemic.
-* as a **shining** example / **reckless**不计后果的 / **vulnerable** student / focus on the best interests of our students / 
-* **plaintiff**原告 / **backpedal**:后退 / 
+* as a **39.shining** example / **40.reckless**不计后果的 / **41.vulnerable** student / focus on the best interests of our students / 
+* **42.plaintiff**原告 / **43.backpedal**:后退 / 
 
