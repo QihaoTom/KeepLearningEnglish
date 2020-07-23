@@ -38,12 +38,10 @@
 >A. What to do with toppled statues? Russsia has a fallen monument park
 * **1.topple** / a **2.flatbed** truck / in **3.conspicuous**: obvious sites / an **4.omnipotent**: having unlimited power force 
 * on his **5.pedestal**:基座 / **6.reckon with**:deal with
-
 >B. President Trump threatens to deploy federal **7.law enforcement** to more U.S. cities.
 * **8.camouflage**伪装 / at the white house / is a mess / **9.empty promises** / **10.human trafficking**贩卖人口 / have been **11.vague** about it / any **12.definitive**:详尽的 plans / **13.snatch** protesters off the streets / detain
 * in his **14.rhetoric** / using someone as **15.a punching bag** 出气筒 / **16.craft** a law-and-order message / **17.skepticism**
 * any **18.insignia**徽章 / **19.tyranny**暴政 / 
-
 >C. The race for COVID-19 vaccines **20.shows promise**. 
 * might be getting closer to an answer / **21.lay the groundwork**奠定基础 / the second **22.is out of** the Univeristy of Oxford
 * **23.adverse event** / a fever, a **24.fatigue** at the site of the injection / don't know anything **25.definitively** yet / 
@@ -51,8 +49,13 @@ experimental injections / **26.neutralize**中和 the virus / **27.rev up to**�
 * they are **32.ahead of the pack**保持领先 / new scientific **33.territory** / potential vaccine candidate **34.falter**衰减 
 * the potential **35.snags**障碍 / in the mass production of the vaccine / **36.team up**合作 / **37.ramp up** production提升产能
 * **38.cast a wide net**海王
-
 >D. And, Florida teachers sue to stop school reopenings amid pandemic.
 * as a **39.shining** example / **40.reckless**不计后果的 / **41.vulnerable** student / focus on the best interests of our students / 
 * **42.plaintiff**原告 / **43.backpedal**:后退 / 
 
+### July 23，2020 | +12
+> White House focuses on metric painting **1.rosier** picture of pandemic
+* coronavirus cases **2.surge across**:started **3.spiking** the U.S. / Trump's **4.insistence** / political **5.ramifications**结果 as / the fatality rate **6.come down** / **7.metric**度量标准 / **8.moving target**:a lagging indicator / a direct measure / 
+* **9.gloss over**:掩盖 / *counterproductive* / pull out one little piece and **10.dangle**:展示 it in front of people 
+* take precautions / **11.accentuate**:emphasize / be **12.dismissive**:不屑一顾 of the seriousness of it / 
+* you're an incumbent 
