@@ -59,3 +59,13 @@ experimental injections / **26.neutralize**中和 the virus / **27.rev up to**�
 * **9.gloss over**:掩盖 / *counterproductive* / pull out one little piece and **10.dangle**:展示 it in front of people 
 * take precautions / **11.accentuate**:emphasize / be **12.dismissive**:不屑一顾 of the seriousness of it / 
 * you're an incumbent 
+
+### July 24, 2020 | 
+> The oil market is oversupplied, partially due to the global economic slowdown. And companies have to come up with creative ways to store **1.excesses of oil**.
+* **2.screech to a halt**:戛然而止 / **3.glut of**:供过于求 crude / start **4.seeing** oppourtunities / still be really competitive **5.pricewise**:物价来看 / **6.bonkers**:疯狂 / laundry **7.detergent**:清洁剂 / make money **8.off** it / **9.edge down**:走低 **10.flag** / **11.hop back up**:上升 boom / 
+
+
+
+
+
+
