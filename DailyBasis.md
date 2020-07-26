@@ -65,11 +65,16 @@ experimental injections / **26.neutralize**中和 the virus / **27.rev up to**�
 * **2.screech to a halt**:戛然而止 / **3.glut of**:供过于求 crude / start **4.seeing** oppourtunities / still be really competitive **5.pricewise**:物价来看 / **6.bonkers**:疯狂 / laundry **7.detergent**:清洁剂 / make money **8.off** it / **9.edge down**:走低 **10.flag** / **11.hop back up**:上升 boom / 
 
 ### July 26, 2020 |
-> Do elected **sheriffs** have outsized power in the U.S.?
-* at the core of it is the idea to bring / be suited to them / **scrutiny**:审查 **scrutinize** the behavior of sheriffs / **unparalleled** autonomy and tremendous power / as you noted / really a remarkable lack of accountability / where rightly / 
-* are a really unique position within both elected office and the criminal legal system / and in the course of doing our research / **singularly** troubling / incredibly independently / is answerable to a mayor
-* run **unopposed** / isn't any meaningful structure in most cases / 
-* **skewed** demographic / how did that come about / **a real red flag**:危险的信号 / 
+> Law | Do elected **1.sheriffs** have outsized power in the U.S.?
+* at the core of it is the idea to bring / be suited to them / **2.scrutiny**:审查 **scrutinize** the behavior of sheriffs / **3.unparalleled** autonomy and tremendous power / as you noted / really a remarkable lack of accountability / where rightly / 
+* are a really unique position within both elected office and the criminal legal system / and in the course of doing our research / **4.singularly** troubling / incredibly independently / is answerable to a mayor
+* run **5.unopposed** / isn't any meaningful structure in most cases / 
+* **6.skewed** demographic / how did that come about / **7.a real red flag**:危险的信号 / **8.extreme** lack of accountability
+* are all **9.concentrated** in one position / replacing or supplementing the sheriff's department with a police department 
+* **10.dismantle**废除 department / **11.manning**看守 the jail, staffing the jail / some **12.particular** reason
+* have no law enforcement experience **13.whatsoever**:丝毫 / my understanding **of** it / as a kind of a **14.criticism**
+* we're **15.growing** / **16.review** our structure / have a good **17.nationwide** search / **18.handcuff**带上手铐
+* **19.uptick**: a climbing health crisis
 
 
 
