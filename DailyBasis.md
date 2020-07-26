@@ -1,4 +1,4 @@
-# Learning English from NPR News，Morning Edition
+# [Learning English from NPR News，Morning / Weekend Edition](https://www.npr.org/programs/all-things-considered/)
 ### July 8.2020 | +30 vocabulary
 > A. The Trump adminsitration is taking action this week that will affect students from kindergarten all the way through graduate school
 * **is 1.revoking (*recalling or rescinding*) visas** for international students
