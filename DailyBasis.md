@@ -64,7 +64,7 @@ experimental injections / **26.neutralize**中和 the virus / **27.rev up to**�
 > The oil market is oversupplied, partially due to the global economic slowdown. And companies have to come up with creative ways to store **1.excesses of oil**.
 * **2.screech to a halt**:戛然而止 / **3.glut of**:供过于求 crude / start **4.seeing** oppourtunities / still be really competitive **5.pricewise**:物价来看 / **6.bonkers**:疯狂 / laundry **7.detergent**:清洁剂 / make money **8.off** it / **9.edge down**:走低 **10.flag** / **11.hop back up**:上升 boom / 
 
-### July 26, 2020 |
+### July 26, 2020 | +19
 > Law | Do elected **1.sheriffs** have outsized power in the U.S.?
 * at the core of it is the idea to bring / be suited to them / **2.scrutiny**:审查 **scrutinize** the behavior of sheriffs / **3.unparalleled** autonomy and tremendous power / as you noted / really a remarkable lack of accountability / where rightly / 
 * are a really unique position within both elected office and the criminal legal system / and in the course of doing our research / **4.singularly** troubling / incredibly independently / is answerable to a mayor
