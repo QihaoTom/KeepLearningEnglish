@@ -76,7 +76,21 @@ experimental injections / **26.neutralize**中和 the virus / **27.rev up to**�
 * we're **15.growing** / **16.review** our structure / have a good **17.nationwide** search / **18.handcuff**带上手铐
 * **19.uptick**: a climbing health crisis
 
-
+### July 27, 2020 | +67
+> Movie | the only living boy in NYC
+* derived from / without mystery / **1.subdued**:弱于 / **2.resolute**:坚定的 protector / psychiatrist / **3.pale**:苍白的 / **4.vintage**:过时的 / **5.polish your brain** 
+* incredibly beautiful / complete sense / outer **6.veneer**:外表 / rule by fear / **7.pounce** / **8.credit** / as much / **9.as funny as it is tragic**也 / **10.swirl**:旋转
+* unpredictable forces / **11.dread**:scare / **12.antidotes**:解药 / cling to the illusion / **13.mug**:rob / **14.out of it**:跳脱出 / **15.dispensing**：药剂 therapy
+* like what / **16.inadequacies** / **17.confirmation** / intentional / **18.hurtful** / **19.fragile** / pay the **20.difference** / 21.blow off:搞黄了 / **22.bipolar**:走极端 
+* **23.unravel**:拆散 **24.rattled**:**25.disruptive**/ **26.furnish**:装修 / duke:公爵 / **27.irresistible** / **28.respect** or money / **29.intoxicated**沉醉于 by /
+* a life of **30.evictions** / **31.refuge**
+* **32.stakeout**监视 / **33.built up** courage / **34.I don't buy it** / **35.provocative**:挑衅的 / **36.anonymous** / **37.vulgarity** / **38.non-entities**：无足轻重的人 
+* declare / perpetual / light / **39.klonpin** / beg / crudeness / **40.unbalanced** / **41.remedy** / **42.visions** / precisely / **43.perverse**:倔强的 / moral 
+* ninja / muder **44.sobriety**:清醒 / in a suit / **45.resort to**:指向 / **46.prerogative**:特权 / go down延续下去 / 
+* **47.sleuth**:侦探 / **48.buster**:破坏者 / **49.strewn**:散播
+* privacy / **50.stomp on**踩踏 / **51.serviceable**：凑合 / **52.companionship**：friendship / **53.hindsight**:事后诸葛亮 / ran away要离开了 / **54.contextual**：上下连贯 / **55.nepotism**：裙带关系
+* junior：初级的 / **56.mass appeal** / **57.nihilist**:虚无主义者 / **58.veil** / **59.throw a party** / **60.ether** / 
+* **61.land on one's feet**:化险为夷 / obligation / **62.bail** / **63.through** / **64.infertile**：不育 / **65.knack**:本领 / in **66.vitro**：试管婴儿 / Cabernet:红葡萄酒 / **67.afar** / desperately / nurture
 
 
 
