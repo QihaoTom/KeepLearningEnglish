@@ -92,5 +92,9 @@ experimental injections / **26.neutralize**中和 the virus / **27.rev up to**�
 * junior：初级的 / **56.mass appeal** / **57.nihilist**:虚无主义者 / **58.veil** / **59.throw a party** / **60.ether** / 
 * **61.land on one's feet**:化险为夷 / obligation / **62.bail** / **63.through** / **64.infertile**：不育 / **65.knack**:本领 / in **66.vitro**：试管婴儿 / Cabernet:红葡萄酒 / **67.afar** / desperately / nurture
 
+### july 28, 2020 | 
+> **Everything that irritates us about others can lead us to an understanding of ourselves.**
+
+
 
 
